@@ -1,1 +1,1 @@
-# Article
+Article about gothic art
